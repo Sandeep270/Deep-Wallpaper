@@ -11,5 +11,5 @@ Computer and Laptop Imaging URL
 https://unsplash.com/wallpapers/desktop
 https://www.pexels.com/search/desktop%20wallpaper/
 https://pixabay.com/images/search/desktop%20wallpaper/
-htthttps://wallpaperaccess.com/pc
+https://wallpaperaccess.com/pc
 https://www.shutterstock.com/search/desktop+wallpaper
